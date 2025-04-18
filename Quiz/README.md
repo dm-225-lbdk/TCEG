@@ -1,2 +1,1 @@
-Exe-файл
-https://drive.google.com/file/d/1EhkI9vUGGHCIX7RkL8S3Ig6TWi7MjDjs/view?usp=sharing
+[Exe-файл та демонстрація гри](https://drive.google.com/drive/folders/1vm6RznCFMbGWBmXzIT4YIZj5jQ4Y1EEE?usp=sharing)
